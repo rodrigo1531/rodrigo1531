@@ -1,3 +1,6 @@
+<p align="center">
+  <img src="https://github.com/rodrigo1531/rodrigo1531/blob/main/Gemini_Generated_Image_ozqh02ozqh02ozqh.png?raw=true" />
+</p>
 # 📘 README – Perfil del Estudiante
 
 ## 🧾 Información General
